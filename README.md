@@ -1,4 +1,4 @@
-# Sachiel-Mel-ndez
+# Sachiel-Melendez
 Estudiante de 1° Desarrollo de Software "B"
 
 # 💫 About Me:
